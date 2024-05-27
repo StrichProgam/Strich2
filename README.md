@@ -9,3 +9,4 @@
 # Caso queira entrar em contato comigo
 - Dmurilogomes@gmail.com
 - @mugomes.9
+(https://tenor.com/pt-BR/view/c3po-confused-r2d2-star-wars-wondering-gif-15915779530755811486)
