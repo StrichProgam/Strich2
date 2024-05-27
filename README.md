@@ -7,4 +7,5 @@
 -EStarei utilizando a plataforma para organizar e guardar meus projetos desenvolvidos
 
 # Caso queira entrar em contato comigo
-Dmurilogomes@gmail.com
+- Dmurilogomes@gmail.com
+- @mugomes.9
